@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🇵🇭 🇨🇳 🏳️‍🌈
+- 👩🏻‍💻 Software Engineer at cove.tool in ATL
+- Attempting to learn in public
+- ⌨️ Avid mechanical keyboard enthusiast
+  - Current main keyboard: 🦉 Owlab Springs (Gazzew Boba LTs) 🌱
+- ♠️ ✨ Dabbler in motion graphics, cardistry, and enhancing user experiences ✨ ♠️
+- 🕹 Lover of nostalgic MMORPGs (Maplestory, OSRS)
