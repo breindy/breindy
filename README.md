@@ -1,7 +1,7 @@
 ### (◕‿◕✿) Hi there, I'm Breindy (b-rhine-dee)! (｡•̀ᴗ-)✧
 
 - 🇵🇭 🇨🇳 🏳️‍🌈
-- 👩🏻‍💻 Software Engineer at [cove.tool](https://www.cove.tools/) in ATL
+- 👩🏻‍💻 Software Engineer at [Proof of Play](https://www.proofofplay.com/) in NYC
 - Attempting to [learn in public](https://www.swyx.io/learn-in-public/)
 - ⌨️ Avid mechanical keyboard enthusiast
   - Current main keyboard: 🦉 Owlab Springs (Gazzew Boba LTs) 🌱
