@@ -1,4 +1,4 @@
-### (◕‿◕✿) Hi there, I'm Breindy (b-rhine-dee)! (｡•̀ᴗ-)✧
+### (◕‿◕✿) Hi there, I'm Breindy (buh-rhine-dee)! (｡•̀ᴗ-)✧
 
 - 🇵🇭 🇨🇳 🏳️‍🌈
 - 👩🏻‍💻 Software Engineer at [Proof of Play](https://www.proofofplay.com/) in NYC
